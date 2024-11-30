@@ -1,0 +1,1 @@
+# Analyzing-Mass-School-Shootings-in-the-United-States-from-1999-to-2024-with-Game-theory
